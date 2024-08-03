@@ -3,7 +3,7 @@
 
 # TEAM
 
-    <name> -- <role> -- <twitter>
+    suyash kesharwani suyash.kesharwani@gmail.com
 
 # THANKS
 
