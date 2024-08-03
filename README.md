@@ -20,3 +20,7 @@ how you doing?
 
 I didn't have a PLA
 oh my eyes my eyes
+
+
+joey is the most funniest character
+but if you will tell chandler he will be offended
