@@ -27,3 +27,7 @@ joey is the most funniest character
 but if you will tell chandler he will be offended
 
 please fork this repository 
+
+
+#Copyright 
+All rights are reserved by me
